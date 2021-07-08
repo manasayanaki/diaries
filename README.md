@@ -1,0 +1,1 @@
+# manasayanaki.diaries
